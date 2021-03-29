@@ -13,7 +13,7 @@
 
 **Links:**
 * [LinkedIn](https://www.linkedin.com/in/lucas-fornazier-6a170bb4/)
-* [Medium](https://www.medium.com)
+* [Medium]
 
 
 ## Projetos:
